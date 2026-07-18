@@ -1,3 +1,3 @@
-#lista de lectura 2026
-2.rayuela - julio cortazar
-3.Ficciones _ jorge luis borges
+1. cien años de soledad - gabriel garcia marquez ★★★★★
+2.rayuela _ julio cortazar
+3. ficciones - jorge luis borges
