@@ -1,4 +1,3 @@
-# lista de lectura 2026
-1. cien años de soledad -Gabriel GArcia Marquez
-2.Rayuela - JUlio Cortazar
-3.Ficciones - Jorge Luis Borges
+#lista de lectura 2026
+2.rayuela - julio cortazar
+3.Ficciones _ jorge luis borges
